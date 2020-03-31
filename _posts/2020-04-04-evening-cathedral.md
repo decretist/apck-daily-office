@@ -131,6 +131,9 @@ He hath put down the mighty from their seat, * and hath exalted the humble and m
 He hath filled the hungry with good things; * and the rich he hath sent empty away.  
 He remembering his mercy hath holpen his servant Israel; * as he promised to our forefathers, Abraham and his seed, for ever.  
 
+Glory be to the Father, and to the Son, and to the Holy Ghost;  
+As it was in the beginning, is now, and ever shall be, world without end. Amen.  
+
 Here beginneth the thirteenth chapter of the Gospel according to St. John:
 
 Now before the feast of the passover, when Jesus knew that his hour
@@ -170,6 +173,9 @@ LORD, now lettest thou thy servant depart in peace, * according to thy word.
 For mine eyes have seen * thy salvation,  
 Which thou hast prepared * before the face of all people;  
 To be a light to lighten the Gentiles, * and to be the glory of thy people Israel.
+
+Glory be to the Father, and to the Son, and to the Holy Ghost;  
+As it was in the beginning, is now, and ever shall be, world without end. Amen.  
 
 I BELIEVE in God the Father Almighty, Maker of heaven and earth:  
 And in Jesus Christ his only Son our Lord: Who was conceived by the

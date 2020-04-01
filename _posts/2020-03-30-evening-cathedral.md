@@ -48,27 +48,27 @@ the glory, for ever and ever. Amen.
 
 **Psalm 119**
 
-Deal bountifully with thy servant, that I may live, and keep thy word  
-Open thou mine eyes, that I may behold wondrous things out of thy law  
-I am a stranger in the earth: hide not thy commandments from me  
-My soul breaketh for the longing that it hath unto thy judgments at all times  
-Thou hast rebuked the proud that are cursed, which do err from thy commandments  
-Remove from me reproach and contempt; for I have kept thy testimonies  
-Princes also did sit and speak against me: but thy servant did meditate in thy statutes  
-Thy testimonies also are my delight and my counsellors  
-My soul cleaveth unto the dust: quicken thou me according to thy word  
-I have declared my ways, and thou heardest me: teach me thy statutes  
-Make me to understand the way of thy precepts: so shall I talk of thy wondrous works  
-My soul melteth for heaviness: strengthen thou me according unto thy word  
-Remove from me the way of lying: and grant me thy law graciously  
-I have chosen the way of truth: thy judgments have I laid before me  
-I have stuck unto thy testimonies: O LORD, put me not to shame  
-I will run the way of thy commandments, when thou shalt enlarge my heart  
+Deal bountifully with thy servant, that I may live, and keep thy word.  
+Open thou mine eyes, that I may behold wondrous things out of thy law.  
+I am a stranger in the earth: hide not thy commandments from me.  
+My soul breaketh for the longing that it hath unto thy judgments at all times.  
+Thou hast rebuked the proud that are cursed, which do err from thy commandments.  
+Remove from me reproach and contempt; for I have kept thy testimonies.  
+Princes also did sit and speak against me: but thy servant did meditate in thy statutes.  
+Thy testimonies also are my delight and my counsellors.  
+My soul cleaveth unto the dust: quicken thou me according to thy word.  
+I have declared my ways, and thou heardest me: teach me thy statutes.  
+Make me to understand the way of thy precepts: so shall I talk of thy wondrous works.  
+My soul melteth for heaviness: strengthen thou me according unto thy word.  
+Remove from me the way of lying: and grant me thy law graciously.  
+I have chosen the way of truth: thy judgments have I laid before me.  
+I have stuck unto thy testimonies: O LORD, put me not to shame.  
+I will run the way of thy commandments, when thou shalt enlarge my heart.  
 
 **Psalm 117**
 
-O praise the LORD, all ye nations: praise him, all ye people  
-For his merciful kindness is great toward us: and the truth of the LORD endureth for ever. Praise ye the LORD  
+O praise the LORD, all ye nations: praise him, all ye people.  
+For his merciful kindness is great toward us: and the truth of the LORD endureth for ever. Praise ye the LORD.  
 
 *Gloria in excelsis.*
 
